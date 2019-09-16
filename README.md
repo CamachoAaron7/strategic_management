@@ -1,0 +1,2 @@
+# strategic_management
+ 
